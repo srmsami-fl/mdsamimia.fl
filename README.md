@@ -1,4 +1,5 @@
 # mdsamimia.fl
+<img width="1280" height="720" alt="Jahid is a Bangladeshi freelancer, Full Stack Web App Developer, and Creative Specialist who provides professional digital services globally (2)" src="https://github.com/user-attachments/assets/43af6f13-b198-41f6-bd0c-1e04b2f83e99" />
 I am SRM卝SAMIヅ Digital Marketer | YouTube Creator &amp; SEO Expert | Web Designer | Graphic Design | Video Editor | Helping brands grow with SEO, Marketing, Design &amp; AI Solutions.🌍
 
 <h1 align="center">Hi 👋, I'm Md Sami Mia</h1>
